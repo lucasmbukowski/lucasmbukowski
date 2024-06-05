@@ -5,9 +5,8 @@ Meu nome e Lucas Bukowski 🩹
 - gosto de estudar
 - sou lindo
 - sou cheiroso
-- e lindo
 - gosto de escuta musica
-
+  
   lucas na voz
 
 ![](https://media1.tenor.com/m/4Y4_MJQC-j8AAAAC/eating-eat.gif)
